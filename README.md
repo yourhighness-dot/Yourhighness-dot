@@ -1,7 +1,14 @@
  ## ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧
 <img width="1920" height="766" alt="image" src="https://github.com/user-attachments/assets/e46201bb-8a88-4822-82fb-7234b129239f" /> <br>
-### Kin names (Richard, Florian), or Denis <br>
-─── ⋆⋅ ♰ ⋅⋆ ───
+### ᴋɪɴ ɴᴀᴍᴇꜱ (ʀɪᴄʜᴀʀᴅ, ꜰʟᴏʀɪᴀɴ), ᴏʀ ᴅᴇɴɪꜱ <br>
+.✦ he/they <br>
+.✦ 19 (28/09) <br>
+.✦ enfp 4w3 (459) <br>
+.✦ 🇩🇪 <br>
+.✦ cluster b <br> <br>
+─── ⋆⋅ ♰ ⋅⋆ ─── <br> <br>
+.✦ c+h freely
+##### .✦ I strongly prefer you w2i, to ensure I recieve the message and due to the chance I may be offtab.
 
 <!--
 **yourhighness-dot/Yourhighness-dot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
