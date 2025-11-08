@@ -11,7 +11,6 @@
 .✦ I accept c+h for *any* ship, really <br>
 ##### .✦ I strongly prefer you w2i, to ensure I recieve the message and due to the chance I may be offtab. <br> <br>
 ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧ <br> <br>
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9b0c2fe7-2e58-40dc-a979-2e61439a413e" />
 
 <!--
 **yourhighness-dot/Yourhighness-dot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
