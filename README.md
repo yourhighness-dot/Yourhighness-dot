@@ -1,5 +1,5 @@
  ## ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧:･ﾟ( ̲̅:̲̅:̲̅:̲̅[̲̅:♡:̲̅]̲̅:̲̅:̲̅:̲̅ ) ･ﾟ✧
-<img width="1920" height="766" alt="image" align="center" src="https://github.com/user-attachments/assets/e46201bb-8a88-4822-82fb-7234b129239f" />
+<img width="1920" height="766" alt="image" src="https://github.com/user-attachments/assets/e46201bb-8a88-4822-82fb-7234b129239f" />
 
 
 
